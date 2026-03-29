@@ -6,8 +6,7 @@ This is the only public ledger.
 
 **Live site:** [wannndows69.github.io/Follow-the-Money-](https://wannndows69.github.io/Follow-the-Money-)
 **Publication:** [das_DEMARC:/](https://dasdemarc.substack.com)
-**Related:** [iranwarcost.com](https://iranwarcost.com/)
-
+**Related:** [iranwarcost.com](https://iranwarcost.com/) (not affiliated, same energy)
 ---
 
 ## What this is
